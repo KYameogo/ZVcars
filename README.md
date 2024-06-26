@@ -4,11 +4,11 @@
 
 Vous souhaitez vendre un véhicule en toute simplicité et sans tracas?
 
-Vous souhaitez avoir un professionnel à vos côtés pour vendre votre voiture au meilleur prix et qui vous fera éviter les pièges de la négociation ?
+Vous souhaitez avoir un professionnel à vos côtés qui vendra votre voiture au meilleur prix et qui vous fera éviter les pièges de la négociation ?
 
 Vous essayez de vendre votre véhicule depuis un certain temps mais sans succés?
       
-Alors faites confiance à ZOOMyVROOMycars le pécialiste de l'occasion! 
+Alors faites confiance à ZOOMyVROOMycars le spécialiste de l'occasion! 
       Contactez ZVcars au 0635482028 pour plus d'information.
 
 
